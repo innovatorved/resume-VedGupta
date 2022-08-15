@@ -4,13 +4,7 @@ Ved Prakash Gupta
 
 Student and Tech enthusiast
 
-C12 Mitra Enclave , knowledge Park 2 , Greater Noida
-
-Uttar Pradesh , 201310
-
-+91 7007868719
-
- vedgupta0401@gmail.com
+ vedgupta@protonmail.com
 
 EDUCATION
 ============
